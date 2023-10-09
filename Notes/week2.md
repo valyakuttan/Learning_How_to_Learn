@@ -105,5 +105,5 @@ idea you already have in mind or a neural pattern
 you've already developed and strengthened, may prevent 
 a better idea or solution from being found.  The German word einstellung means mindset.
 
-You have to unlearn your erroneous older ideas orapproaches even 
+You have to unlearn your erroneous older ideas or approaches even 
 while you're learning new ones. 
